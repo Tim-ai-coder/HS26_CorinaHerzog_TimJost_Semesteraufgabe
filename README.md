@@ -1,0 +1,2 @@
+# HS26_CorinaHerzog_TimJost_Semesteraufgabe
+Semesterafgabe
